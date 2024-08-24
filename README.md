@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ReksaX-Samp
+- I like playing SAMP game
+- 16 y'o
+- from indonesia
+- Boy's
